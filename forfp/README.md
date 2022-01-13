@@ -11,5 +11,5 @@ how-to-squat-common-mistakes-1200x800-1-1024x683.jpg:<br>
 Squat photo<br><br>
 istockphoto-1060749070-1024x1024.jpg:<br>
 Sit up photo<br><br>
-<br>
+push-up-reguler-300x258.jpg:<br>
 Push up photo<br><br>
