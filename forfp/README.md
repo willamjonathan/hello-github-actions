@@ -4,6 +4,8 @@ Plank photo<br>
 25.512.webp:<br>
 jog photo <br>
 BACK UP WORKOUT:<br>
-back up photo
+back up photo<br>
 food cal right one:<br>
 the food calories table<br>
+how-to-squat-common-mistakes-1200x800-1-1024x683.jpg:<br>
+Squat photo<br>
